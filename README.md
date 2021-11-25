@@ -2,7 +2,7 @@
 
 ### 𝗗𝗲𝘃𝗶𝗹 𝗛𝗮𝗰𝗸𝗲𝗿 𝗠𝘂𝘀𝗶𝗰 ɪꜱ ᴀ ᴛᴇʟᴇɢʀᴀᴍ ᴘʀᴏᴊᴇᴄᴛ ʙᴀꜱᴇᴅ ᴏɴ ᴘʏʀᴏɢʀᴀᴍ ꜰᴏʀ ᴘʟᴀʏ ᴍᴜꜱɪᴄꜱ ɪɴ ᴠᴄ ᴄʜᴀᴛꜱ...
 
-<p align="center"><a href="https://t.me/JaiHindChatting"><img src="https://telegra.ph/file/98028a641d5e7935b6786.jpg" width="300"></a></p>
+<p align="center"><a href="https://t.me/JaiHindChatting"><img src="https://telegra.ph/file/ca5b39fb733ca63e60617.jpg" width="300"></a></p>
 
 
 
